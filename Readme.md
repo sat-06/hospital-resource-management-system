@@ -1,1 +1,1 @@
-No project update today
+Project update
